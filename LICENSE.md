@@ -1,4 +1,4 @@
-# 
+# Léger new coin sniper bot extensions pour Mac OS | VIP new coin sniper bot extensions pour PC Windows. Avec analyse de données et protection stop-loss — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
